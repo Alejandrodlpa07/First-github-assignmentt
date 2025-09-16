@@ -119,3 +119,4 @@ Anybody fightin' through the?
 
 #### Link to the site i got lyrics from 
 [click here for a masterpiece](https://genius.com/Kendrick-lamar-count-me-out-lyrics)
+[Click here for the musical video of this masterpiece](https://youtu.be/5GhhVHpPR_M?feature=shared)
