@@ -2,8 +2,8 @@
 
 
 
-## Count me out by Kendrick Lamar 
-# Lyrics 
+# Count me out by Kendrick Lamar 
+### Lyrics 
 We may not know which way to go
 On this dark road
 (Mr. Duckworth)
@@ -115,3 +115,7 @@ This is me and I'm blessed (ayy, ayy)
 This is me and I'm blessed (ayy, ayy)
 Anybody fightin' through the stress? (Ayy, ayy)
 Anybody fightin' through the?
+
+
+#### Link to the site i got lyrics from 
+[click here for a masterpiece](https://genius.com/Kendrick-lamar-count-me-out-lyrics)
